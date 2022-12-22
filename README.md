@@ -5,6 +5,10 @@ Kochrezepte
 
 https://www.essen-und-trinken.de/rezepte/40442-rzpt-broccoli-curry-suppe
 
+## Gurkensalat
+
+https://www.zuckerjagdwurst.com/de/rezepte/veganer-gurkensalat
+
 ## Labskaus
 
 https://www.tofutante.de/labskaus-vegan-ein-nordisches-original/
