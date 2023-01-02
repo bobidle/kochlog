@@ -13,6 +13,10 @@ https://www.zuckerjagdwurst.com/de/rezepte/veganer-gurkensalat
 
 https://www.tofutante.de/labskaus-vegan-ein-nordisches-original/
 
+## Lasagne mit Bechamelsauce
+
+https://www.zuckerjagdwurst.com/de/rezepte/vegane-lasagne-mit-bechamelsauce
+
 ## Pilaw mit Kichererbsen und Pilzen
 
 https://www.zuckerjagdwurst.com/de/rezepte/veganes-pilaw-kichererbsen-pilze
