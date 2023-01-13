@@ -1,6 +1,10 @@
 # kochlog
 Kochrezepte
 
+## Aloo Palak mit Spinat, Kichererbsen und Kartoffeln
+
+https://www.fuersie.de/kochen/rezeptideen/artikel/mein-rezept-fuer-veganes-aloo-palak-indische-spinat-kartoffeln
+
 ## Broccoli-Curry-Suppe
 
 https://www.essen-und-trinken.de/rezepte/40442-rzpt-broccoli-curry-suppe
