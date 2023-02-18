@@ -17,6 +17,10 @@ https://www.zuckerjagdwurst.com/de/rezepte/veganer-gurkensalat
 
 https://www.tofutante.de/labskaus-vegan-ein-nordisches-original/
 
+## Lasagne Eintopf
+
+https://biancazapatka.com/de/vegane-lasagne-suppe/
+
 ## Lasagne mit Bechamelsauce
 
 https://www.zuckerjagdwurst.com/de/rezepte/vegane-lasagne-mit-bechamelsauce
