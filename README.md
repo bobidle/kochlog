@@ -25,6 +25,10 @@ https://biancazapatka.com/de/vegane-lasagne-suppe/
 
 https://www.zuckerjagdwurst.com/de/rezepte/vegane-lasagne-mit-bechamelsauce
 
+## Linsensuppe
+
+https://biancazapatka.com/de/veganer-linseneintopf/
+
 ## Pilaw mit Kichererbsen und Pilzen
 
 https://www.zuckerjagdwurst.com/de/rezepte/veganes-pilaw-kichererbsen-pilze
