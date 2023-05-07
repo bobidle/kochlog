@@ -9,6 +9,10 @@ https://www.fuersie.de/kochen/rezeptideen/artikel/mein-rezept-fuer-veganes-aloo-
 
 https://www.essen-und-trinken.de/rezepte/40442-rzpt-broccoli-curry-suppe
 
+## Erdnuss Satay Ramen
+
+https://www.youtube.com/watch?v=fM3YG7jE_Ys
+
 ## Gurkensalat
 
 https://www.zuckerjagdwurst.com/de/rezepte/veganer-gurkensalat
