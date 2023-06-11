@@ -18,6 +18,10 @@ Kochrezepte
 
 [https://www.zuckerjagdwurst.com/de/rezepte/veganer-gurkensalat](https://www.zuckerjagdwurst.com/de/rezepte/veganer-gurkensalat)
 
+## Hot-Dog-Schnecken
+
+[https://www.zuckerjagdwurst.com/de/rezepte/vegane-hot-dog-schnecken](https://www.zuckerjagdwurst.com/de/rezepte/vegane-hot-dog-schnecken)
+
 ## Labskaus
 
 [https://www.tofutante.de/labskaus-vegan-ein-nordisches-original/](https://www.tofutante.de/labskaus-vegan-ein-nordisches-original/)
