@@ -22,6 +22,10 @@ Kochrezepte
 
 [https://www.zuckerjagdwurst.com/de/rezepte/vegane-hot-dog-schnecken](https://www.zuckerjagdwurst.com/de/rezepte/vegane-hot-dog-schnecken)
 
+## Kichererbsensuppe mit Pasta und Grünkohl
+
+[https://www.bevegt.de/kichererbsensuppe/](https://www.bevegt.de/kichererbsensuppe/)
+
 ## Labskaus
 
 [https://www.tofutante.de/labskaus-vegan-ein-nordisches-original/](https://www.tofutante.de/labskaus-vegan-ein-nordisches-original/)
