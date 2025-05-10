@@ -42,6 +42,10 @@ Kochrezepte
 
 [https://biancazapatka.com/de/veganer-linseneintopf/](https://biancazapatka.com/de/veganer-linseneintopf/)
 
+## Pad Thai
+
+[https://www.zuckerjagdwurst.com/de/rezepte/veganes-pad-thai-mit-huehnchen](https://www.zuckerjagdwurst.com/de/rezepte/veganes-pad-thai-mit-huehnchen)
+
 ## Pilaw mit Kichererbsen und Pilzen
 
 [https://www.zuckerjagdwurst.com/de/rezepte/veganes-pilaw-kichererbsen-pilze](https://www.zuckerjagdwurst.com/de/rezepte/veganes-pilaw-kichererbsen-pilze)
